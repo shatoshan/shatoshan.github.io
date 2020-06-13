@@ -1,0 +1,1 @@
+# shatoshan.github.io
